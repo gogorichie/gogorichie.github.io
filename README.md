@@ -1,1 +1,0 @@
-# gogorichie.github.io
